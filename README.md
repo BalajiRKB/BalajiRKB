@@ -7,7 +7,7 @@
 
 > **🔥 Code is my canvas. Innovation is my masterpiece.**
 
-Building tomorrow’s tech, today. Check out my [portfolio](https://balajirkb.pages.dev/) to see my latest creations.
+Building tomorrow’s tech, today. Check out my [portfolio](https://balajirkb.me/) to see my latest creations.
 ---
 
 ## 🚀 About Me
